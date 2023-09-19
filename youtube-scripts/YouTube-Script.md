@@ -24,7 +24,13 @@
 - Outro linking to other video.
 
 ## Intro
+
 Welcome back to the channel everybody
+
+- creative blocks
+- importance of inspiration and references
+- I use on a daily basis
+- I 
 
 ## Matter
 
